@@ -3,9 +3,9 @@ Pumpad Bot
 
 support my github channel 
 
-Register Here : [Pumpad Bot](https://t.me/Pumpad_Bot/Lucky?startapp=45516077769202547)
+Register Here : [Pumpad Bot](http://t.me/Pumpadgame_bot?game=lucky)
 
-Join to My Telegram Group : [S4NSGroup](https://t.me/sansxgroup)
+Join to My Telegram Group : [TMHNIX](https://t.me/tmhnix)
 
 
 ## Tutorial
