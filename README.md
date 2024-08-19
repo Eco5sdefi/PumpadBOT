@@ -3,7 +3,7 @@ Pumpad Bot
 
 support my github channel 
 
-Register Here : [Pumpad Bot](http://t.me/Pumpadgame_bot?game=lucky)
+Register Here : [Pumpad Bot](http://t.me/Pumpadgame_bot?game=lucky?startapp=7121736661)
 
 Join to My Telegram Group : [TMHNIX](https://t.me/tmhnix)
 
